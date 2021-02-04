@@ -1,0 +1,1 @@
+# kare-matrisin-her-satirindaki-en-kucuk-elemani-o-satirin-ilk-gozune-yazdiran-program
